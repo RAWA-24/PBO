@@ -1,0 +1,1 @@
+# PBO6_241106041777_LATIHAN62_GradienGarisLurus
